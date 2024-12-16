@@ -1,4 +1,3 @@
-# -
 **Top 10 Most Popular Unblocked Games You Should Try**
 <a href="https://unblocked-games.org/">CLICK TO PLAY FREE UNBLOCKED GAMES</a>
 Unblocked games have taken the internet by storm, providing quick and accessible entertainment for people of all ages. Whether at school, work, or just looking to pass some time, these games deliver fun without the need for downloads or complex setups. Let’s dive into the most popular unblocked games making waves online.
